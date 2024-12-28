@@ -1,0 +1,1 @@
+I am a career professional in systems and software development. I have served in the U.S. Air Force, Defense Industry, and small business ecosystem within the defense supply chain. I currently serve as the Chief Value Officer (CVO) of Prime Solutions Group, Inc (PSG). PSG is a small business I created in 2007.
